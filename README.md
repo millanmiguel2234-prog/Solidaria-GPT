@@ -1,0 +1,1 @@
+# Solidaria-GPT
